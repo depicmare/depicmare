@@ -3,7 +3,8 @@
 Hey,be careful.
 
 he/they ; any.
-epic / nightmare. = rad / mare
+
+Epic / Nightmare. = Rad / Mare
 
 Here are some ideas to get you started:
 
