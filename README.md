@@ -9,5 +9,8 @@ he/they ; any.
 
 Epic / Nightmare. = Rad / Mare
 
-Here are some ideas to get you started:
+= iwcaution -mare
+➥ dry / sarcastic / laidback ; personality
 
+= int / c+h -rad
+➥ cool / energetic / friendly ; personality
