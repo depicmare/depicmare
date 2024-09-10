@@ -1,6 +1,6 @@
 ## Depicated Nightmares on loose.
 
-![Untitled166_20240910151323](https://github.com/user-attachments/assets/3e1f21b6-1bd7-4cfe-8627-100f14003b7e)
+![Untitled166_20240910151616](https://github.com/user-attachments/assets/d517c53e-b096-4eb3-b06f-687fc8e0dcf5)
 
 
 Hey, be careful.
